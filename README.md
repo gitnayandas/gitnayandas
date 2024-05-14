@@ -40,8 +40,8 @@ Check out some of my projects:
 
 Connect with me on:
 
-- [LinkedIn](https://www.linkedin.com/in/nayan-das)
-- [Twitter](https://twitter.com/nayan_dev)
+- [LinkedIn](https://www.linkedin.com)
+- [Twitter](https://twitter.com)
 - [Youtube](https://www.youtube.com/@nmlletras)
 - [Facebook](https://www.facebook.com/nayanchandradas22)
 - [Behance](https://www.behance.net/nayanchandradas)
