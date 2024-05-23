@@ -43,9 +43,11 @@ Connect with me on:
 - [LinkedIn](https://www.linkedin.com)
 - [Twitter](https://twitter.com)
 - [Youtube](https://www.youtube.com/@nmlletras)
+- [Patreon](https://www.patreon.com/NayanDas)
 - [Facebook](https://www.facebook.com/nayanchandradas22)
 - [Behance](https://www.behance.net/nayanchandradas)
 - [Reddit](https://www.reddit.com/user/redditnayandas)
 - [Pinterest](https://www.pinterest.com/nayanchandradas1601)
+
 
 Feel free to reach out if you have any questions, ideas, or just want to chat! 😊
